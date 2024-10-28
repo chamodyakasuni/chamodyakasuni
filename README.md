@@ -46,7 +46,7 @@ Feel free to reach out to me through:
 - [✉️ Email](mailto:chamodya.chamo21@gmail.com)
 - [💼 LinkedIn](https://www.linkedin.com/in/chamodya-kasuni-757079326/)
 - [🌐 Portfolio](http://chamodya.me/)
-- [🐦 [Pinterest](https://www.pinterest.com/chamodyachamo21/)
+- [🐦Pinterest](https://www.pinterest.com/chamodyachamo21/)
 
 ---
 

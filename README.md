@@ -51,7 +51,7 @@ Feel free to reach out to me through:
 ---
 
 ## 😄 Pronouns
-- She/Her / He/Him / They/Them (choose what fits you)
+- She/Her
 
 ---
 

@@ -19,6 +19,18 @@ As a passionate **UI/UX Designer**, I thrive on creating visually stunning and u
 
 ---
 
+## 💻 Skills
+- **Design Tools**: 
+  - **Figma**: Proficient in creating high-fidelity prototypes and design systems.
+  - **Adobe XD**: Experience in wireframing and interactive prototyping.
+  
+- **Web Development**:
+  - **HTML**: Building semantic, accessible web structures.
+  - **CSS**: Styling websites with a focus on responsive design.
+  - **JavaScript**: Adding interactivity and enhancing user experience.
+
+---
+
 ## 💞 Collaborations
 I’m looking to collaborate on:
 - Projects focused on **user-centered design**.

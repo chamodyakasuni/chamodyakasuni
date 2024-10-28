@@ -41,15 +41,15 @@ I’m looking to collaborate on:
 
 ## 📫 Get in Touch
 Feel free to reach out to me through:
-- [Email](mailto:your-email@example.com)
-- [LinkedIn](https://www.linkedin.com/in/your-profile)
-- [Twitter](https://twitter.com/your-profile)
-- [Portfolio](https://yourportfolio.com)
+- [Email](mailto:chamodya.chamo21@gmail.com)
+- [LinkedIn](https://www.linkedin.com/in/chamodya-kasuni-757079326/)
+- [Portfolio](http://chamodya.me/)
+- [Pinterest](https://www.pinterest.com/chamodyachamo21/)
 
 ---
 
 ## 😄 Pronouns
-- She/Her / He/Him / They/Them (choose what fits you)
+- She/Her
 
 ---
 
